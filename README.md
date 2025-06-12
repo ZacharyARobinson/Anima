@@ -722,5 +722,108 @@ Our work relies on you! Help us keep the Internet free and open.
 
 Donate Now
 Except where otherwise noted , content on this site is licensed under a Creative Commons Attribution 4.0 International license . Icons by Font Awesome .
+Skip to content
+Creative Commons
+Who We Are
+What We Do
+Licenses and Tools
+Blog
+Support Us
 
+English
+Search
+Donate
+Explore CC
+Public Domain List
+CC0 1.0 Public Domain
+CERTIFICATION 1.0 US Public Domain
+PDM 1.0 Public Domain
+Creative Commons is the nonprofit behind the open licenses and other legal tools that allow creators to share their work. Our legal tools are free to use.
+
+Learn more about our work
+Learn more about CC Licensing
+Support our work
+Use the license for your own material.
+Licenses List
+CC0 1.0 Public Domain
+Universal
+Language	Legal Tools
+zero
+Basque	Deed
+Legal Code
+dansk	Deed
+Legal Code
+Deutsch	Deed
+Legal Code
+English	Deed
+Legal Code
+español	Deed
+Legal Code
+français	Deed
+Legal Code
+Hrvatski	Deed
+Legal Code
+italiano	Deed
+Legal Code
+latviešu	Deed
+Legal Code
+Lietuviškai	Deed
+Legal Code
+Nederlands	Deed
+Legal Code
+polski	Deed
+Legal Code
+Română	Deed
+Legal Code
+Slovenščina	Deed
+Legal Code
+suomi	Deed
+Legal Code
+svenska	Deed
+Legal Code
+Ελληνικά	Deed
+Legal Code
+日本語	Deed
+Legal Code
+简体中文	Deed
+Legal Code
+繁體中文	Deed
+Legal Code
+한국어	Deed
+Legal Code
+CERTIFICATION 1.0 US Public Domain
+United States
+Language	Legal Tools
+certification
+English	Deed
+PDM 1.0 Public Domain
+Universal
+Language	Legal Tools
+mark
+English	Deed
+Creative Commons
+Contact
+Newsletter
+Privacy
+Policies
+Terms
+Contact Us
+Creative Commons PO Box 1866, Mountain View, CA 94042
+
+info@creativecommons.org
+
++1-415-429-6753
+
+Bluesky
+Mastodon
+LinkedIn
+Subscribe to our Newsletter
+Your email
+Support Our Work
+Our work relies on you! Help us keep the Internet free and open.
+
+Donate Now
+Except where otherwise noted , content on this site is licensed under a Creative Commons Attribution 4.0 International license . Icons by Font Awesome .
+
+ 
  
